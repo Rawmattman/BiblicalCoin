@@ -13,9 +13,7 @@ In line with our commitment to accessibility, we have developed a unique token t
 
 Furthermore, recognizing the socioeconomic challenges faced by many, we have taken deliberate steps to ensure inclusivity extends beyond investment opportunities. To this end, we have crafted an engaging "play-to-earn" game, granting individuals from all walks of life an equal chance to participate in a monthly tournament. This exciting competition offers the prospect of winning free Biblical Coin to the top three achievers, even enabling those who may lack the means to invest to partake in the rewards. With this multifaceted approach, we are not only revolutionizing the digital finance landscape but also fostering a sense of community, where individuals can unite in their pursuit of financial and spiritual growth. Join us on this remarkable journey, as we propel the message of the gospel to new horizons through the integration of Biblical Coin and Standing for Truth Ministries. 
 
-Earn
-
-Are you broke or do not even have a bank but want to own Biblical Coins? We are releasing a play-to-earn game that is free to play for all and gives you a chance to win free Biblical Coins by helping Jesus vanquish demons in monthly tournaments where the three highest scores win.
+We are releasing a play-to-burn game that is free to play for all and gives you a chance to make your own  Biblical Coins more valuable by helping Jesus vanquish demons in monthly tournaments where the three highest scores win.
 
 TOKENOMICS
 
