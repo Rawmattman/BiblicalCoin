@@ -1,9 +1,5 @@
 # BiblicalCoin
 The Tokenomics were designed to benefit humanity and investors. We are a Christian Ministry and have been for years. With no physical location, what better than to have a cryptocurrency powering the ministry team who are spread out over the world? You will find that we are much different than most Christian ministries as well. We do not divide but rather unite all denominations. We are all brothers and sisters in Christ. 
- 
-
-As the creator, I have been in crypto for one full cycle and have learned how the overall market works. I have created this token to survive a bad economy and to save the investor their hard-earned cash. I have a plan for years out for this coin, and I intend to bless all those who find it.
- 
 
 You can also rest assured that your money will be going to spreading the gospel and helping those in need. Feel free to check out my main YT channel where we have been doing just that for the past four years = https://shorturl.at/epqU5
 We may use funds from the team wallet twice a year for outreach and charity. During this time we will make sure the liquidity in Uniswap is high so the token price does not fluctuate wildly. Then we will use funds to get our ministry's content supplied to churches worldwide and help those in need by selecting charities and individuals.  God wants us to use our wealth to provide for our fellow believers and our families (1 Timothy 5:8). Finally, a small percentage that is left will go into marketing and those who hold BC and are helping promote will be rewarded with Free BC tokens via Airdrop. 
